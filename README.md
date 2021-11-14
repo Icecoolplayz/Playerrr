@@ -1,2 +1,0 @@
-# Playerrr
-PRIVATTEE
